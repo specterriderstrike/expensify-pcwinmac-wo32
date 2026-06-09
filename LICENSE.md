@@ -1,4 +1,4 @@
-# 
+# Turbo Expensify modelos para Mac OS | Gratuito Expensify modelos para PC Windows. Com codificação de projetos e cálculo de impostos estaduais — otimizado para máximo desempenho em cada plataforma.
 
 
 
